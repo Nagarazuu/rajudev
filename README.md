@@ -4,3 +4,5 @@ Raju Srivastav, also known as Gajodhar, was an Indian comedian, actor, and polit
 He gained popularity through his stand-up comedy performances and appearances on television shows like "The Great Indian Laughter Challenge." His signature style often involved impersonations, particularly of Amitabh Bachchan.
 
 Srivastav also ventured into acting, appearing in Bollywood films like "Bombay to Goa" and "Aamdani Atthanni Kharcha Rupaiya." He was also a politician, having contested in the 2014 Lok Sabha elections.
+
+Satya Prakash Srivastav (25 December 1963 – 21 September 2022), known professionally as Raju Srivastav and often credited as Gajodhar, was an Indian comedian, ...
